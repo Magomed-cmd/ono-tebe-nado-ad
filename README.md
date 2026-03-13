@@ -1,1 +1,1 @@
-https://github.com/Magomed-cmd/ono-tebe-nado-ValievMM
+https://github.com/Magomed-cmd/ono-tebe-nado-ad
